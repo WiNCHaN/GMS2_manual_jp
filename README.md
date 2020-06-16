@@ -1,0 +1,1 @@
+# GMS2_manual_jp
